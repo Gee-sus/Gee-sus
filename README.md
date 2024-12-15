@@ -7,6 +7,4 @@
 
 📫 How to reach me: geesingh77@hotmail.com
 
-😄 Pronouns: He/Him
-
 ⚡ Fun fact: I moved to New Zealand after a pub bet, stayed to revolutionize the logistics industry, and founded Artemis Freight Forwarding. When I’m not coding or riding my motorcycle, I’m usually fueled by coffee, Yorkshire tea, and endless curiosity!
